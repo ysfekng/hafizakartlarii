@@ -1,0 +1,2 @@
+# hafizakartlarii
+Hafıza Kartları
